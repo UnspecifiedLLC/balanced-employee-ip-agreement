@@ -1,4 +1,4 @@
-# UN Balanced Employee Intellectual Property Agreement DRAFT
+# UN Balanced Employee Intellectual Property Agreement
 
 This BALANCED EMPLOYEE INTELLECTUAL PROPERTY AGREEMENT is between person named below and UNspecified LLC ("UN", "Company"), a North Carolina limited liability company.
 
